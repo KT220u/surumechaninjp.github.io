@@ -1,1 +1,0 @@
-# surumechaninjp.github.io
